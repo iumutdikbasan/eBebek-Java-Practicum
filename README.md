@@ -1,0 +1,1 @@
+## Practicum boyunca verilmiş ödevler
